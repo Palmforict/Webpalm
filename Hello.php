@@ -1,1 +1,0 @@
-sawaddee kub ajarn 
